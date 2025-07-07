@@ -1,5 +1,5 @@
 # 💫 About Me:
-Mustafoyev Shohruh Oromovich 20 y.o TUIT 3/4 
+Mustafoyev Shohruh Oromovich 20 y.o TUIT 4/4 
 
 
 ## 🌐 Socials:
